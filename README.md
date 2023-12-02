@@ -1,1 +1,1 @@
-![picgifs-silent-hill-2934112](https://github.com/Bonekazz/Bonekazz/assets/103968474/4a887bd7-34bf-4228-b482-5bda6d1f6124)
+![6jtg](https://github.com/Bonekazz/Bonekazz/assets/103968474/a6c6f6c3-5b27-408f-b561-fd3fcce09859)
